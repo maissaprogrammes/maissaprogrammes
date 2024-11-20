@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @maissaprogrammes
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning coding and programming
-- 💞️ I’m looking to collaborate on with you all
+- 💞️ I’m looking to collaborate with you all
 - 📫 How to reach me ig:iyeadroua
 - 😄 Pronouns: She/her
 - ⚡ Fun fact: I dont have any lol
